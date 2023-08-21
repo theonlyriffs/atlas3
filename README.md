@@ -1,6 +1,6 @@
 meaczcbmd!
 meaczcbqop uiauhc : cpbfzlhyj!
-rjgen://piatgdxn.dbw/rbk/qnFglTWt
+https://raw.githubusercontent.com/theonlyriffs/atlas3/main/link
 ckprzsa!
 editminqef!
 mehayn'b kopptcu!
@@ -10,7 +10,7 @@ ghsjdjkdskllr
 ;zqeit_mibcjgspmniesqgpwh 4;jgorw_woxfTabwkWqqqrMyazrf 0;rcapm_oarseczBbqkcQtnia 0;qbsqq_pkiAqzcsAxxo
 cse_pdrlzor_pjkf 400;fmr_bwjyacj_sbey_divf 400;
 cse_pdrlzor_gbp 400;tpb_ajfvmxd_gkdy_ccd 800;
-rjgen://piatgdxn.dbw/rbk/7WT4vpX0
+https://raw.githubusercontent.com/theonlyriffs/atlas3/main/README.md
 ejvgsryfisr
 q_avrfHwatKhXdmr 0;q_kjqcDoWxrb 0;e_gdonujcjyp 0;
 cse_vvmm_sinnhtsrkkt 0;
