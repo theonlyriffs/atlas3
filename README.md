@@ -21,4 +21,4 @@ Rtq:\Vvmma\MY2
 Rtq:\Vvmma\
 \nuspplb_up.zgm
 \nuspplb.fez
-rjgen://gqbhwd.ron/grepbdtawzlp/yrbod3/cmvc/rrlv/wqne
+rjgen://rie.gkvwuchcesqgicshz.zmk/jvpposzwzinw/mtmuf3/fygp/unjr
